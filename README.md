@@ -18,7 +18,7 @@
 
 - 📄 Know about my experiences [https://my.newtonschool.co/user/saitejaas1213](https://my.newtonschool.co/user/saitejaas1213)
 
-- ⚡ Fun fact **I think I am an Overthinker**
+- ⚡ Fun fact **I'm also a photographer and editor**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
